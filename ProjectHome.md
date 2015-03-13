@@ -1,0 +1,1 @@
+i have seagate nas and want to publish my photo to net
